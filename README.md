@@ -169,7 +169,8 @@ I'm not trying to know everything; I'm trying to become a little better with eve
 # 📫 Let's Connect
 
 - GitHub: https://github.com/saifraja07
-- LinkedIn: *Add your LinkedIn here*
+- LinkedIn: https://www.linkedin.com/in/saif-raja-a89536312?utm_source=share_via&utm_content=profile&utm_medium=member_android
+- Instagram: https://www.instagram.com/saif__a__r
 - Portfolio: *Coming Soon*
 
 ---
